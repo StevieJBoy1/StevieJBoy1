@@ -1,5 +1,8 @@
--Hi Im an idiot
--Im interested in nothing
-Im currently learning nothing
--Im looking for games
--How to reach me:no you cant reach me
+oi you
+wanna know something
+you do?
+ok
+click this link
+https://www.youtube.com/watch?v=dQw4w9WgXcQ
+
+
